@@ -1,6 +1,6 @@
 ## Hi there 👋 I'm María Ignacia 
 
-Hola, me llamo María Ignacia Martínez. Tengo 26 años. Vivo en Santiago, Chile 🇨🇱. Me encuentro cursando el MSc de la Ingenería, mención Recursos Hídricos y Medio Ambiente Hídrico. 
+Hola, me llamo María Ignacia Martínez. Tengo 26 años. Vivo en Santiago, Chile 🇨🇱. 
 
 ### ℹ️ Info 
 
